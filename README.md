@@ -82,3 +82,5 @@ To unlock the raw, unrestricted lifetime enterprise source framework components 
 * **Price:** **\$150,000.00 USD (One-Time Enterprise Buyout Option)**
 * **Delivery:** Instant automated source repository synchronization including clean decoupled deployment scripts.
 * **Support Profile:** 12 Months of priority engineering access and complete GCP/Gemini CX architecture optimization guides.
+
+Official Corporate Desk Communication: selim09hossain@gmail.com , https://www.linkedin.com/in/selim-hossain-0a434b296/
